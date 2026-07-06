@@ -1,7 +1,8 @@
 <div align="center">
-yes dats me follow me in my [?]main
 
-  <img width="300" height="300" alt="2362" src="https://github.com/user-attachments/assets/d9920ce7-d9b2-4d4b-ac86-2b30fe743d62" />
 
-[rentry](https://rentry.co/tokyowonder)‎ ‎  [ataboo](https://qoreboy.atabook.org/)
+  <img width="750" height="1000" alt="5300" src="https://github.com/user-attachments/assets/ff735afc-3cbb-43e8-97f8-a05f2ca1eb86" />
+Can we all Just commit suicide
+
+[rentry](https://rentry.co/gasai-chan)‎ ‎  [ata](https://lulutto.atabook.org/)
 [prnouns.cc](https://pronouns.cc/@xbri)
